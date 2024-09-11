@@ -63,7 +63,7 @@ Once you’ve got everything set up:
 *"Sometimes you have to let go of your pride and let yourself cry."*<br>
 *— Edward Elric*<br>
 
-**if you answer yes, you'll get:**
+*Wanna know where this is from? Let me fetch the anime details for you...*
 
 ![Alt Text](https://miro.medium.com/v2/resize:fit:1400/1*10sQCBzHcWFfPS6Lxl3VhQ.jpeg)
 *Anime Title: Fullmetal Alchemist: Brotherhood* <br>
